@@ -4,7 +4,9 @@
 <p align="left">
 </p>
 
-![whitebeard-shirohige](https://github.com/user-attachments/assets/049e8cee-28a2-4761-a8a9-eb11c0c0c094)
+![dota2-dota](https://github.com/user-attachments/assets/f8a79759-9e34-4186-82b3-68b1208ab906)
+![juggernaut-dota2](https://github.com/user-attachments/assets/76f829ca-4c1c-4888-906f-5b38f1152942)
+
 
 
 
